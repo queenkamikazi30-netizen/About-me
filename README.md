@@ -1,5 +1,8 @@
 # About-me
-This repository will be talking who I am and what my hobbies are. 
-I like Coding 
-I like to play volleyball
-God's child
+This repository will talk about who I am and what my hobbies are. 
+I like coding 🥶
+I like playing 🏐.
+I like cars.
+God's child🙏
+I am in grade 8 at NLS.
+The experience at NLS is really cool and very interesting.
