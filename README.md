@@ -6,3 +6,4 @@ I like cars.
 God's child🙏
 I am in grade 8 at NLS.
 The experience at NLS is really cool and very interesting.
+🚀 My goal is to keep learning, improve in coding, and become successful in the future.
